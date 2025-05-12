@@ -1,1 +1,1 @@
-Thins web site deducated to my best pet friend Charlie.
+Thins web site dedicated to my best pet friend Charlie.
